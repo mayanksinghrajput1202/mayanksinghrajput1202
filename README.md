@@ -2,7 +2,7 @@
 
 **AI Trainer & LLM Evaluation Specialist** | RLHF, Prompt Engineering | Varanasi, India (Remote)
 
-📧 mayanksinghrajput1202@gmail.com · 📞 +91-9450414658
+📧 mayanksinghrajput1202@gmail.com · 📞 +91-9450414658 · [LinkedIn](https://www.linkedin.com/in/mayank-singh-a0a727246)
 
 ## About me
 
